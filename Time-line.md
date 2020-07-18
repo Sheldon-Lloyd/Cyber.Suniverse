@@ -1,4 +1,4 @@
-# Cyber.Beast(Backstory)
+﻿# Cyber.Beast(History)
 
 At one point there were 9-12 nations until the Cyber.Beast arrived and the world united into 1-3 factions resulting in the first change of the world order
 
@@ -98,9 +98,9 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - Kyshumu teams up with Xenos and Kassia but splits up after a disagreement
 
-## Year 71 C.C.
+- Tomasina falls i'll doctors tell her family that their is nothing that can be done
 
-- Cytek begins researching ways to create Cybervators of their own ones they can control
+## Year 71 C.C.
 
 - They are able to contact Makkusu a teenage scientist from the Quantum.Suniverse who has been researching quantum mechanics
 
@@ -108,19 +108,21 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - Makkusu discovers that the virus that gave Cybervator their powers is the Flu/HPV/HSV from Helios
 
-- Tensions rise as Cytek wants to use the cybervators as weapons again. CyTek insists that this is the best way to prevent a war. The blue clan agrees the Traik is less trusting
+- Makkusu blaming his self for creating the virus takes it upon his self to save Tomasina. Makkusu begins experimentation first on plants. Makkusu kidnaps bringing her to his lab in the quantum.suniverse turning her into a cybervator. She is warned of the risk of death if it fails. She sees it as a dream come true as she always imagined what life would be loke as a cybervator never having to deal with her illness. He promises come to her universe to visit her.
+        - Nurse: what do want to be when you grow up
 
-- The cybervators threaten to remove the protection from citizens of one of the earths networks. A Cytek again to see the cybervators as both a threat an opportunity. They send Tomasina to win the Cybervators over. If she fails they will go to war
+          Tomasina: I want to be a cybervators that I wont be sick anymore. Then I'll be able to help save people the same way you're helping me.
+          *The nurse has a look of pitty*
 
-- CyTek tells Makkusu that they need his help to create Cybervators of their own ReNet has threaten to stop protecting the earth from Cyber.Beast
+- Cytek sees it as an opportunity to create Cybervators of their own ones they can control
 
-- Makkusu begins experimentation first on plants. Makkusu tells them the only way that the modification would have a chance of succeed if it is implant during adolescent. Tomasina volunteers her self to be the first human experiment is brought to his lab. Makkusu is adverse to using a teen no younger than his self to undergo such a dangerous procedure. He asks if there is anything that cou suggests to instead have her marry the son of the King
+- The cybervators threaten to remove the protection from citizens of one of the earths networks. Cytek again begins to see the cybervators as both a threat an opportunity.
+
+- As Tensions rise Cytek wants to use the cybervators as weapons again. CyTek insists that this is the best way to prevent a war. The blue clan agrees the Traik is less trusting
+
+- They send Tomasina to win the Kings Tournament. If she fails they will go to war allowing Cytek company to aquire the ReNet Clan
 
 - Back on earth CyTek Genetically modified adolescent into Blue.Type Cybervators to compete with ReNet as they feel humans should have the power
-
-- Tomasina a teen spy is assigned a mission to marry Kyshumu allowing the merger of the ReNet clan and the CyTek company
-
-- Tomasina is reluctant and Kyshumu does not respect her. This leads Makkusu to create a solution giving Tomasina the option to genetically modify herself, allowing her to compete in the upcoming King championships as a cybervator. She is warned of the risk of death if it fails. This was the original plan but he lobbied against it because of the risk. She is reluctant of the planed marriage as she has begun to develop feelings for Makkusu
 
 - Tomasina is genetically engineered as the first blue.type cybervator. So that Humans will no longer need to be reliant on cybervators for protection. She starts in Cyberspace and eventually qualifies to become a cybervator just in time for the tournament
 
@@ -142,14 +144,13 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - She joins representing BluNet/CyTek. Although she loses the championship she wins the heart of Kyshumu. Before or after Tomasina loses he tells her that fighting in the real world is nothing like cyberspace that it may feel the same  but it is not that her body is not ready that he has lived his whole life as a cybervator and she has been one for all of one year
 
-- Tomasina warns the cybervators of a possible war.  They want them to be eventually integrated into society and forced to give up their "barbaric" sport. The winner would eat/suck the tail of the loser allowing them to take their cyber.beast
+- With Tomasina failing her mission she warns the cybervators of a possible war.  They want them to be eventually integrated into society and forced to give up their "barbaric" sport. The winner would eat/suck the tail of the loser allowing them to take their cyber.beast
 
         Tomasina: The humans on earth think that you are a threat. They are afraid that when you killed all of the cyber.beast what is stopping from killing them next
 
         Tomasina: We know that you have be doing more than just slaying Cyber.Beast.
 
         Kyshumu: what is she talking about father				
-
         Traik: We have been hacking and sometimes even destory satilites for profits. They are unhacble to everyone accept cybervators 
 
         Kyshumu: Why											
@@ -192,15 +193,17 @@ For years the cybervators suffered died and perished down in these craters. That
 
 ## Year 78 C.C.
 
+- To,asina is reluctant of the planed marriage as she has begun to develop feelings for Makkusu
+
 - Things move along smoothly until Tomasina tells Makkusu if not for her arranged political marriage that she would go back to his world with him. She puts her hand on his check and press her forehead and nose upon his. He assume that she is inviting a kiss.
 
         Makkusu: Ouch!
 
         Tomasina: What did you dooo!
 
-        Makkusu: I'm sorry I thought
+        Makkusu: I'm sorry I thought you wanted to kiss.
 
-        Tomasina: It was meraly a honi/hongi.
+        Tomasina: A kiss their is no food here to share a kiss with
 
         Makkusu talks to Jack
 
@@ -208,7 +211,7 @@ For years the cybervators suffered died and perished down in these craters. That
 
         Makkusu: Tomasina. I tried, I thought... I kissed her
 
-        Torrey: she pierced right through you lip. They asked for your/our help  you don't deserve this
+        Torrey: she pierced right through you lip. After all you did to help them. You don't deserve this
 
         Makkusu: No I deserved it
 
@@ -220,7 +223,7 @@ For years the cybervators suffered died and perished down in these craters. That
 
         Jack(stepping in between): oh come on it was just kiss
 
-        Tomasina: It’s not just a kiss! Kissing is how we procreate.
+        Tomasina: It’s not just a kiss! Sharing food is how we kiss. What you did is how we procreate.
 
         (she shows her deflowered chest)
 
@@ -232,7 +235,7 @@ For years the cybervators suffered died and perished down in these craters. That
 
         (Tomasina looking distraught)
 
-        Father: No. What is… (wrong with you pe… ople)
+        Father: No. What is wrong with you pe… (ople)
 
         Mack(Pushes Torrey away): sorry what he is trying to say is that on our planet deflowered is a figure of speech
 

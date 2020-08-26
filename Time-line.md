@@ -19,6 +19,8 @@ The moon is an arch allowing the preservation and translocation of animals acros
 
 - Over a decade later however these "precautions" were futile something far worse than the virus appeared began to unsurface.
 
+- The virus that had once spread across the globe left those that became unfertile and some diabled. A select group of people that contracted the virus had no synthoms carriers that had past virus to others. However eventualy the children of these carriers was born with a birth defect an aparent horn that grew from the backs of their head that grew into tails. Feared and ocsrtazied from society sent to stay on the moon which the virus came from to prevent futhur exposure
+
 - Some of those that contracted the virus begin to hallucinate they would see Strange beast despite the fact that animals have never existed on the plant. The hallucinations were assumed to be from the fevers. The children of the infected began to have hallucinations as well but unlike the their parents whose hallucinations went away when the illness resided the children's never went went away.
 
 - The beast could only be seen by cybervators who feared them and called them Cyber.Beast. Most humans however could not see them thinking that its was all in the heads of the children. They begin to stigmatize these kids calling them cybervators named after the virus their parents had.
@@ -261,9 +263,9 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - ReNet continues hacking satellites while CyteK offers they're service to defend satellites from ReNet. Out maned at first CyTek resorts to using prisoners even children of prisoner to fill their ranks. Many of them fight without knowing about it. Their deaths are hidden with the lie that they have short life spans
 
-- Limited in number and sort on time. The humans use prison slaves regardless of age as blue.type. The older the subject the greater the risk. Being that they are prisoners they have no qualms about controlling them directly using tech created by Kassia. They promise them freedom if they consent a promise that will be revoked if they inform others. They begin to even arrest citizens for the small  crimes even inventing new laws so they can build their ranks
+- Limited in number and sort on time. The humans use prison slaves regardless of age as blue.type. The older the subject the greater the risk. Being that they are prisoners they have no qualms about controlling them directly using tech created by Kassia. They promise them freedom if they consent a promise that will be revoked if they inform others. They begin to even arrest citizens for the small  crimes even inventing new laws so they can build their ranks. The majorty are 
 
-- Blue Nation Cybervators are prisoners forced to fight many most or all fighting without knowing about it. The Blue nation sends blue slaves and CSDs to aid the nations in defeating 
+- Blue Nation Cybervators are prisoners forced to fight many most or all fighting without knowing about it. The Blue nation sends blue slaves and CSDs to aid the nations in defeating Cybervators
 
 - Kyshumu meanwhile starts to remove the remaining few liberties the human who are the minority on the moon has.
 
@@ -275,7 +277,7 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - Against the wishes of Kyshumu Xenos begins cutting the tails of Cybervators rather than killing instructing his cyber.fights to do the same
 
-- Xenos and/or Minia/Airiona discovers that Blue.type Cybervators are being forced to fight against their will. He inform Kyshumu who does not believe him. Kyshumu blames that fact that Xenos has been cutting the tails of Cybervators as the reason they do not remember fighting
+- Xenos and/or Minia/Airiona discovers that Blue.type Cybervators are being forced to fight against their will. She informs Kyshumu who does not believe him. Kyshumu blames that fact that Xenos has been cutting the tails of Cybervators as the reason they do not remember fighting
 
 - People on the outside looking in are led to believe it is not a civil war but is instead a Cybervators turning cyber.beast slaying into a gladiator like sport. Along with cyber warfare at first
 

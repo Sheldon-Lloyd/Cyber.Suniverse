@@ -195,7 +195,7 @@ For years the cybervators suffered died and perished down in these craters. That
 
 ## Year 78 C.C.
 
-- To,asina is reluctant of the planed marriage as she has begun to develop feelings for Makkusu
+- Tomasina is reluctant of the planed marriage as she has begun to develop feelings for Makkusu
 
 - Things move along smoothly until Tomasina tells Makkusu if not for her arranged political marriage that she would go back to his world with him. She puts her hand on his check and press her forehead and nose upon his. He assume that she is inviting a kiss.
 
@@ -209,15 +209,15 @@ For years the cybervators suffered died and perished down in these craters. That
 
         Makkusu talks to Jack
 
-        Torrey: what happened to you
+        Jack: what happened to you
 
         Makkusu: Tomasina. I tried, I thought... I kissed her
 
-        Torrey: she pierced right through you lip. After all you did to help them. You don't deserve this
+        Jack she pierced right through you lip. After all you did to help them. You don't deserve this
 
         Makkusu: No I deserved it
 
-        Torrey: a slap maybe. But this. This is uncalled for!
+        Jack: a slap maybe. But this. This is uncalled for!
 
         (Tomasina leaves Kyshumu or her father returns)
 
@@ -229,19 +229,19 @@ For years the cybervators suffered died and perished down in these craters. That
 
         (she shows her deflowered chest)
 
-        Torrey: what happened to her breast!
+        Jack: what happened to her breast!
 
         Father: I told you already, he deflowered her
 
-        Torrey: yea but I didn't think you meant literally… you mean to tell me your women's boobs are made of flower petals! What is wrong with you people!
+        Jack: yea but I didn't think you meant literally… you mean to tell me your women's boobs are made of flower petals! What is wrong with you people!
 
         (Tomasina looking distraught)
 
         Father: No. What is wrong with you pe… (ople)
 
-        Mack(Pushes Torrey away): sorry what he is trying to say is that on our planet deflowered is a figure of speech
+        Mack(Pushes Jack away): sorry what he is trying to say is that on our planet deflowered is a figure of speech
 
-        Torrey: don’t worry Mack I'll help you pay child support?
+        Jack: don’t worry Mack I'll help you pay child support?
 
         Tomasina: child support? The NRA raises and supports our cybervators here.
 
@@ -255,7 +255,9 @@ For years the cybervators suffered died and perished down in these craters. That
 
 - Mack/Makkusu Max's father who has been visiting Max is seemingly killed by Max as Kyshumu attempted to take Max and/or Jax away as it is to dangerous to bring him back to the quantum universe. 
 
-- Max goes berserk because he wants to go back with his father killing multiple people including his father and presumed mother. 
+- Max goes berserk because he wants to go back with his father killing multiple people including his father
+
+- Max and Jax was never given a ritual to obtain their first cyber.beast. This is why Max goes berserk. Makkusu does not want Max and Jax to be people throught the ritual as she wants them to live normal live and does not want to risk them dying during the ritual 
 
 ## Version 1
 
@@ -289,10 +291,10 @@ For years the cybervators suffered died and perished down in these craters. That
 
 ## Version 2
 
-- Mack/Torrey/Kassia comes up with the idea instead of hacking satellites for the highest bidder they could instead force companies to participate in their tournament wager their satellites instead with the cybervators from ReNet and CyTek serving as the champion. Tomasina suggest they wont believe in the whole collective conciseness thing. Instead they use something more tangible bit gems as the primary incentive. The add a second layer on the original format. This allowed top cybervators to be chosen as reps rather than the top 12 fight with no affiliation
+- Mack/Kassia comes up with the idea instead of hacking satellites for the highest bidder they could instead force companies to participate in their tournament wager their satellites instead with the cybervators from ReNet and CyTek serving as the champion. Tomasina suggest they wont believe in the whole collective conciseness thing. Instead they use something more tangible bit gems as the primary incentive. The add a second layer on the original format. This allowed top cybervators to be chosen as reps rather than the top 12 fight with no affiliation
 
 - Max goes Berserk and Xenos is killed but Max retains his memory so Kyshumu does not hide Max from his mother
 
-- Ace becomes the youngest cybervator with Alex becoming the first Cyber.Coordinator
+- Ace becomes the youngest cybervator with Alex becoming the first Cyber.Coordinator. He surprises everyone by choosing Alex as his partner coining the term cyber.coordinator. Many excuse him for his desicion assuming it to be the fault of his naivety due to his age
 
 *Created with XMind: ZEN - Trial Version*

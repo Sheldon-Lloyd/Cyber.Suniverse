@@ -59,7 +59,7 @@ At first, no one believed these people until they started controlling the things
 - It is eventually discovered that Cybervators are able to access this quantum cyberspace.
     - Some of these people began to steal the satellites. They would then sell them to other organizations on the black market. This allows them to connect the satellite to their organization's hub of satellites.
 
-Organizations begin to hire these people to serve as security guards for these satellites. This is because only one person can be linked to the satellite at a time. It becomes a coveted job as people can literally earn money while they sleep as long as they link up while going to sleep.
+    - Organizations begin to hire these people to serve as security guards for these satellites. This is because only one person can be linked to the satellite at a time. It becomes a coveted job as people can literally earn money while they sleep as long as they link up while going to sleep.
 
     - In the future it is how they get their powers to compete in their "barbaric" sport and when they become Mercenaries Cybervators that have been contracted by ReNet
 

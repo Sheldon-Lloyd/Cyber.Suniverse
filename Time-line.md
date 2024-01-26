@@ -49,11 +49,18 @@ For years the cybervators suffered died and perished down in these craters. That
 
 ## Year 15 C.C.
 
-- On earth the virus continues to wreck havoc infecting many. Cyber.beast has decimated the armies of all of the nations. Mean while on the moon imprisoned scientist(Bursun's obsessed  future wife/mother) manages to turn bursun into the first cybervator. She believes that Cybervators are the next step in human evolution
+- It's discovered that those who contracted the virus can hack into satellites by meditating, allowing them to Astro project onto cyberspace. They can then go into the satellite and hyperlink with what they called cyber.beast housed within it.
+
+At first, no one believed these people until they started controlling the things that were connected to the satellite
+- On earth the virus continues to wreck havoc infecting many. Cyber.beast has decimated the armies of all of the nations. Mean while on the moon imprisoned scientist(Bursun's obsessed  future wife/mother) manages to turn bursun into the first cyberfighter. She believes that Cybervators are the next step in human evolution
 
 - The only defense nations had against cyber.beast was the satellites using the solar energy stored within them to destroy the cyber.beast. It did not work however all they were able to do was destroy their own cities while strengthening the cyber.beast in the process
 
 - It is eventually discovered that Cybervators are able to access this quantum cyberspace.
+    - Some of these people began to steal the satellites. They would then sell them to other organizations on the black market. This allows them to connect the satellite to their organization's hub of satellites.
+
+Organizations begin to hire these people to serve as security guards for these satellites. This is because only one person can be linked to the satellite at a time. It becomes a coveted job as people can literally earn money while they sleep as long as they link up while going to sleep.
+
     - In the future it is how they get their powers to compete in their "barbaric" sport and when they become Mercenaries Cybervators that have been contracted by ReNet
 
 - After Cytek discovers Cybervators abilities other nations become fearful of them Cytek insists they are harmless and may even become beneficial to other nation to use as a weapon

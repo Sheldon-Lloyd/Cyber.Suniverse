@@ -31,8 +31,8 @@ They kept their dodder plant muscular system which sits in between the wood(bone
 The average height is 6'-5" for men and 6'-0" for women. The average life span is 200 years.
 
 ### Races
-There are 3 races classified by color
-#### Red.Type
+There are 3 races
+#### Xybervators
 The original Cybervators biological robots. They can see [seconds into the future](https://www.quantamagazine.org/to-make-sense-of-the-present-brains-may-predict-the-future-20180710/) but can only see one possible future this what makes them more proactive to the point of being impulsive--acting first and not thinking later. An artist type but aggressive in nature with high emotions, they tend to work in entertainment. Since they are extroverts and think best collaborating and building on the ideas of others. They come up with new ideas and concepts impulsively so it is not refined. This makes them great testers to make improvements. Being emotional makes them easy to manipulate though despite being paranoid of everyone especially when it comes to trusting authority. They have a habit of pressing actual and metaphorical buttons
 
 
@@ -47,6 +47,6 @@ Offense: Attacks are widespread affecting all of an opponents armor at once. Whe
 
 Defense: Their defensive strategy is blocking attacks with attacks. Focusing on cross-blocking techniques and attacking before they are hit first
 
-#### Blue.Type
+#### Xybrids
 
-#### Green.Type
+#### Humans

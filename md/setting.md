@@ -37,7 +37,13 @@ The original Cybervators biological robots. They can see [seconds into the futur
 
 
 **Physical description:**
-They are left hand domanint and have red hair, eyes, and ears. They tend to be shorter in stature compared to blue.types and green.types
+They are left hand domanint and have green hair, eyes, and ears that will turn red when they are in hyperdrive mood. They tend to be shorter in stature compared to blue.types and green.types
+
+They have a tail that only grow when hyperlink with a cyber.beast and grows even fast when exerting their physically while hyperlinked
+
+Red cybervators are born and thus will always have red hair
+
+They tend to be right handed
 
 **Fighting style:**
 Both hands can emit energy but it gets a large amount since no other part of their body has it. Most of their energy when they have synergized forms around their upper body utilizing its abilities and elements at high capacities. Red class fighters are often aggressive, due to the Cyber.Beast synergizing closer to their head. They have an affinity for using cyber.beast with high strength and like to divert the most of their energy toward strength
@@ -48,5 +54,8 @@ Offense: Attacks are widespread affecting all of an opponents armor at once. Whe
 Defense: Their defensive strategy is blocking attacks with attacks. Focusing on cross-blocking techniques and attacking before they are hit first
 
 #### Xybrids
+There hair eyes and ears are green but will turn blue when the in hyperdrive mode blue types are made so their hair on turns in fusion
+
+They They tend to be left hand as something in the genetic makeup of left handed people allows them to become xybrids
 
 #### Humans
